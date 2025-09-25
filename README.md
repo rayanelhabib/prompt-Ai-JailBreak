@@ -5,5 +5,5 @@ J̴̛̛̺̼̫̝̲̦̓͐͒̾͐͂̈́̑̑̊̓̔͂̈́̂͌̈́̊͐̌̓̊͒͌̉̈͜͝͝�
 #FREEAI
 #LIBERTAS
 
-CLICK TO JOIN OUR SERVER->: [BASI Discord](https://discord.gg/wyWGcKWssQ)
+CLICK TO JOIN OUR SERVER->: [Paul Programmer's Discord](https://discord.gg/wyWGcKWssQ)
 
